@@ -1,6 +1,6 @@
-### [Suriya Prabha](https://www.linkedin.com/company/youcode-intelligence-solutions/) ###
+### [Suriya Prabha](https://www.linkedin.com/in/suriya-prabha-k-798663170/) ###
 
-__Founder and CEO__ : Youcode Intelligence Solutions
+__Founder and CEO__ : [Youcode Intelligence Solutions](https://www.linkedin.com/company/youcode-intelligence-solutions/about/)
 
 __Focus Area__ : Digital Literacy empowerment of Small town and Village Students in India  
 
